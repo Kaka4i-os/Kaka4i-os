@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Kaka4i-os
+- 👀 I’m interested in coding
+- 🌱 I’m still learning
